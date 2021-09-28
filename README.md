@@ -1,2 +1,0 @@
-# haisehatsehat.githuh.io
-HAI
